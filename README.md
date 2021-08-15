@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Pop 
+- 👀 Interested in Technology
+- 🌱 Currently learning whatever comes infront of my eyes
+- 💞️ I’m looking to collaborate on interesting concepts
+- 📫 How to reach me -> https://twitter.com/pop_dbig
